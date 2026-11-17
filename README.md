@@ -1,1 +1,1 @@
-# Individu-Assignment1-CSC584-ICEPS20264-2025508005
+# Individual-Assignment1-CSC584-ICEPS20264-2025508005
